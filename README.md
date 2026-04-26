@@ -10,8 +10,8 @@ I specialize in:
 
 📍 Mumbai, India  
 📧 mahimashetty369@gmail.com  
-🔗 [LinkedIn](https://linkedin.com/in/mahimashetty)  
-💻 [GitHub](https://github.com/mahimashetty)
+🔗 [LinkedIn](https://linkedin.com/in/mahima-shetty)  
+💻 [GitHub](https://github.com/mahima-shetty)
 
 ---
 
